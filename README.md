@@ -1,4 +1,4 @@
 ## feel free to use.
 
-## contact
+## Mail
 afanasabigor@protonmail.com
